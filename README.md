@@ -18,4 +18,4 @@ My general research skills and interests include:
 
 I am always open to speaking, teaching, collaboration, consulting, and outreach opportunities. 
 
-Feel free to reach out to me with questions or requests at [vivek.sriram\@gmail.com](mailto:vivek.sriram@gmail.com). To learn more about me, visit my website at [https://vsriram24.github.io](https://vsriram24.github.io)
+Feel free to reach out to me with questions or requests at [vivek.sriram\@gmail.com](mailto:vivek.sriram@gmail.com). To learn more about me, visit my website at [https://viveksriram.com](https://viveksriram.com)
