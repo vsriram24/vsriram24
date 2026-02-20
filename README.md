@@ -13,6 +13,4 @@ My areas of focus include:
 
 -   Evaluation, governance, and human-centered AI system design
 
-I am always open to speaking, teaching, collaboration, consulting, and outreach opportunities. 
-
-Feel free to reach out to me with questions or requests at [vivek.sriram\@gmail.com](mailto:vivek.sriram@gmail.com). To learn more about me, visit my website at [https://viveksriram.com](https://viveksriram.com)
+I am always open to speaking, teaching, collaboration, consulting, and outreach opportunities. Feel free to reach out to me with questions or requests at [vivek.sriram\@gmail.com](mailto:vivek.sriram@gmail.com). To learn more about me, visit my website at [https://viveksriram.com](https://viveksriram.com)
